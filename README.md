@@ -1,0 +1,1 @@
+# verdecasino-app-pl
